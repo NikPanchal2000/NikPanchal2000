@@ -21,4 +21,4 @@ Got Small Bites From All The Apples, On A Journey To Being Jack of All Trades An
 - Email - [Gmail](https://mail.google.com/mail/u/0/?view=cm&fs=1&to=nikunjpanchal926@gmail.com&tf=1)
 - Skype - [Skype](https://join.skype.com/invite/u3ShJZxAmmQD)
 
-[![](https://visitcount.itsvg.in/api?id=NikPanchal2000&icon=0&color=0)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=nikunj926&icon=0&color=0)](https://visitcount.itsvg.in)
